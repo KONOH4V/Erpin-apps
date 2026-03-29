@@ -1,0 +1,1 @@
+# Capture_translate_app_page
